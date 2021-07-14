@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LisaKucher
 - 👀 I’m interested in space travel and futures
-- 🌱 I’m currently learning life
+- 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
